@@ -1,4 +1,5 @@
-- 🙍‍♂️ Matías Molina
+-![Sin título](https://github.com/user-attachments/assets/dcaadbee-0a94-4735-9c71-1a98e3082bab)
+ 🙍‍♂️ Matías Molina
 - 👨‍🎓 Estudiante
 - 🏫 Escuela de Educación Secundaria Técnica N°1
 - 📋 Curso: 6to 3ra Grupo 6.8
